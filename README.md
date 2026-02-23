@@ -1,5 +1,5 @@
 # 💫 About Me:
-Can I grow my GitHub in ~SIX MONTHS before I leave for SF in September:<br><br>Hey, I'm Cindy:<br>🌱 Entering Stanford Class of 2030 intending to major in Symbolic Systems<br>🤝 Looking to learn <br>💬 Open to conversations: 2026.cindychen@gmail.com
+I'm Cindy:<br>🌱 Entering Stanford Class of 2030 intending to major in Symbolic Systems<br>🤝 Looking to learn <br>💬 Open to conversations: 2026.cindychen@gmail.com
 
 
 ## 🌐 Socials:
