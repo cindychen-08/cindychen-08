@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Cindy:<br>🌱 Entering Stanford Class of 2030 intending to major in Symbolic Systems<br>🤝 Looking to learn <br>💬 Open to conversations: 2026.cindychen@gmail.com
+I'm Cindy:<br>🌱 Entering Stanford Class of 2030 intending to major in Symbolic Systems<br>🤝 Looking to learn <br>💬 Open to conversations: cindyc08@stanford.edu
 
 
 ## 🌐 Socials:
